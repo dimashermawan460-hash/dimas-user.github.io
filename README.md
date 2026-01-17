@@ -1,2 +1,2 @@
-# dimas-user.github.io
+# dimas.com
 si web paling crazy rizz
